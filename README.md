@@ -1,0 +1,2 @@
+# seaofideas
+Just for fun
